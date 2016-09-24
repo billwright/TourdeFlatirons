@@ -1,5 +1,7 @@
 # 2016 13th Annual Tour de Flatirons
 
+[Current Standings](https://docs.google.com/spreadsheets/d/1A3iUznWK5DMIFNqVjj2uB6DKfUjypJK9PSA7M8iI2NE/edit?usp=sharing)
+
 ## Stage 1: Stairway to the Fifth
 Wednesday, September 14th, 5:30 p.m.
 
